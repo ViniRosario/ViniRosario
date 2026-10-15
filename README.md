@@ -1,4 +1,4 @@
-# Hi 👋, I'm José Vinícius Rosário
+# Hi, I'm José Vinícius Rosário
 
 🚀 **Computer Science Student | Software Developer**  
 🇧🇷 Brazil
